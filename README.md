@@ -1,4 +1,4 @@
-# Best Chrome AD Blocker
+# Liteweight Chrom Cookie, Canvas, And ADs Blocker FREE
 
 Block ADs and Trackers with this fast and lite extension/plugin!
 
