@@ -1,4 +1,4 @@
-# Liteweight Chrom Cookie, Canvas, And ADs Blocker FREE
+# Liteweight Chrome Cookie, Canvas, And ADs Blocker FREE
 
 Block ADs and Trackers with this fast and lite extension/plugin!
 
